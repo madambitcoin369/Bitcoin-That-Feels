@@ -43,8 +43,8 @@ To collaborate on secure or extended versions, please contact the author under t
 ## 📬 Contact
 
 To discuss research or trust-based collaboration:  
-**Email:** [REDACTED or insert a secure contact here]  
-**Website (optional):** [noesismirror.com](https://noesismirror.com)
+**Email:** madambitcoin369@proton.me  
+
 
 ---
 
